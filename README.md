@@ -1,0 +1,1 @@
+# HALUZINSKYI-exam1-elegant
